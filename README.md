@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DanPC4413
+- 👀 I’m interested in creating new projects
+- 💞️ I’m looking to collaborate with others!
+- 📫 How to reach me: Danielplunkett826@gmail.com
+- ⚡ Fun fact: i can be very optimistic!
